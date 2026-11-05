@@ -1,1 +1,3 @@
 # learn-github
+
+The baby elephant plays in the lake. He plays with the other baby elephants. The lake is very big. His mother calls him to eat. He gets out of the lake. He runs over to his mother. The baby elephant walks between her legs.
